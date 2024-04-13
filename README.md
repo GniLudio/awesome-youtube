@@ -1,4 +1,4 @@
-# Awesome YouTube
+# Awesome YouTube ([Playlist](https://youtube.com/playlist?list=PLpjqMwJhmfiGFgobP7obKjBkQr-B77Asr&feature=shared))
 > Awesome YouTube videos about all kinds of topics.
 
 * [A Brief History of Graphics](https://www.youtube.com/watch?v=QyjyWUrHsFc) - Ahoy
