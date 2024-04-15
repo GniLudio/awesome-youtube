@@ -6,6 +6,7 @@
 * [Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
 * [Is it Better to Walk or Run in the Rain?](https://youtu.be/3MqYE2UuN24)
 * [Jackie Chan - How to Do Action Comedy](https://youtu.be/Z1PCtIaM_GQ)
+* [Laughing Matters | Comedy Documentary | Earful #Comedy](https://youtu.be/lqKqVrBP-so)
 * [Me at the zoo](https://youtu.be/jNQXAC9IVRw)
 * [Mr. Bean Is A Master Of Physical Comedy](https://youtu.be/uBUnmdd5-iA)
 * [Real Life Trick Shots | Dude Perfect](https://youtu.be/A2FsgKoGD04)
