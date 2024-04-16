@@ -3,6 +3,7 @@
 
 * [$456,000 Squid Game In Real Life!](https://youtu.be/0e3GPea1Tyg)
 * [A Brief History of Graphics](https://youtu.be/QyjyWUrHsFc)
+* [The Mother of All Demos, presented by Douglas Engelbart (1968)](https://youtu.be/yJDv-zdhzMY)
 * [Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
 * [Evolution of Dance](https://youtu.be/dMH0bHeiRNg)
 * [Is it Better to Walk or Run in the Rain?](https://youtu.be/3MqYE2UuN24)
