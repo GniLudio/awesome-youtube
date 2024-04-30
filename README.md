@@ -8,6 +8,7 @@
 * [Is it Better to Walk or Run in the Rain?](https://youtu.be/3MqYE2UuN24)
 * [Jackie Chan - How to Do Action Comedy](https://youtu.be/Z1PCtIaM_GQ)
 * [Laughing Matters | Comedy Documentary | Earful #Comedy](https://youtu.be/lqKqVrBP-so)
+* [Life in a Day 2020 | Official Documentary](https://youtu.be/vcsSc2iksC0)
 * [Me at the zoo](https://youtu.be/jNQXAC9IVRw)
 * [Mr. Bean Is A Master Of Physical Comedy](https://youtu.be/uBUnmdd5-iA)
 * [Real Life Trick Shots | Dude Perfect](https://youtu.be/A2FsgKoGD04)
