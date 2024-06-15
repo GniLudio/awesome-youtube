@@ -26,5 +26,5 @@
 ## Noteworthy
 
 * [ Evolution of Dance ](https://youtu.be/dMH0bHeiRNg)
-* [ Talking Twin Babies - PART 2 - OFFICIAL VIDEO ](https://youtu.be/_JmA2ClUvUY)
 * [ Me at the zoo ](https://youtu.be/jNQXAC9IVRw)
+* [ Talking Twin Babies - PART 2 - OFFICIAL VIDEO ](https://youtu.be/_JmA2ClUvUY)
