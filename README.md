@@ -5,6 +5,7 @@
 * [ A Brief History of Graphics ](https://youtu.be/QyjyWUrHsFc)
 * [ Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
 * [ Coding Adventure: Chess ](https://youtu.be/U4ogK0MIzqk)
+* [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
 * [ How Filmmakers Make Cameras Disappear | Mirrors in Movies ](https://youtu.be/VASwKZAUVSo)
 * [ I Gave My Goldfish $50,000 to Trade Stocks ](https://youtu.be/USKD3vPD6ZA)
 * [ I Made a Graph of Wikipedia... This Is What I Found ](https://youtu.be/JheGL6uSF-4)
@@ -21,7 +22,6 @@
 * [ This Video Has 71,695,937 Views ](https://youtu.be/BxV14h0kFs0)
 * [ What If Everyone JUMPED At Once? ](https://youtu.be/jHbyQ_AQP8c)
 * [ What To Do If Your Parachute Fails ](https://youtu.be/dy5xLVx2NGY)
-* [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
 
 ## Noteworthy
 
