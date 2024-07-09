@@ -2,6 +2,7 @@
 > Awesome YouTube videos about all kinds of topics.
 
 * [ $456,000 Squid Game In Real Life! ](https://youtu.be/0e3GPea1Tyg)
+* [ 12 Principles of Animation (Official Full Series) ](https://youtu.be/uDqjIdI4bF4)
 * [ A Brief History of Graphics ](https://youtu.be/QyjyWUrHsFc)
 * [ Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
 * [ Can We Make This Button Fun To Press? ](https://youtu.be/7L1B5YaxxoA)
