@@ -9,6 +9,7 @@
 * [ Coding Adventure: Chess ](https://youtu.be/U4ogK0MIzqk)
 * [ Evolution of Dance ](https://youtu.be/dMH0bHeiRNg)
 * [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
+* [ How do bulletproof vests work? - Max G. Levy ](https://youtu.be/HsaSaYcnTKg)
 * [ How Filmmakers Make Cameras Disappear | Mirrors in Movies ](https://youtu.be/VASwKZAUVSo)
 * [ I Gave My Goldfish $50,000 to Trade Stocks ](https://youtu.be/USKD3vPD6ZA)
 * [ I Made a Graph of Wikipedia... This Is What I Found ](https://youtu.be/JheGL6uSF-4)
