@@ -29,3 +29,4 @@
 * [ This Video Has 71,695,937 Views ](https://youtu.be/BxV14h0kFs0)
 * [ What If Everyone JUMPED At Once? ](https://youtu.be/jHbyQ_AQP8c)
 * [ What To Do If Your Parachute Fails ](https://youtu.be/dy5xLVx2NGY)
+* [ Why Democracy Is Mathematically Impossible ](https://youtu.be/qf7ws2DF-zk)
