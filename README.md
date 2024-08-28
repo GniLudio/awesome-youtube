@@ -1,5 +1,5 @@
-# Awesome YouTube ([Playlist](https://youtube.com/playlist?list=PLpjqMwJhmfiGFgobP7obKjBkQr-B77Asr&feature=shared))
-> Awesome YouTube videos about all kinds of topics.
+# Awesome YouTube
+> Awesome YouTube videos about all kinds of topics: [Playlist](https://youtube.com/playlist?list=PLpjqMwJhmfiGFgobP7obKjBkQr-B77Asr&feature=shared)
 
 * [ $456,000 Squid Game In Real Life! ](https://youtu.be/0e3GPea1Tyg)
 * [ 12 Principles of Animation (Official Full Series) ](https://youtu.be/uDqjIdI4bF4)
