@@ -23,6 +23,7 @@
 * [ Real Life Trick Shots | Dude Perfect ](https://youtu.be/A2FsgKoGD04)
 * [ The Backwards Brain Bicycle - Smarter Every Day 133 ](https://youtu.be/MFzDaBzBlL0)
 * [ The Beauty of Bézier Curves ](https://youtu.be/aVwxzDHniEw)
+* [ The Logistics of a Presidential Campaign ](https://youtu.be/Aj8lwyWKpa4)
 * [ The Map of Mathematics ](https://youtu.be/OmJ-4B-mS-Y)
 * [ The Mother of All Demos, presented by Douglas Engelbart (1968) ](https://youtu.be/yJDv-zdhzMY)
 * [ The Real Reason Robots Shouldn’t Look Like Humans ](https://youtu.be/eLVAMG_3fLg)
