@@ -29,6 +29,7 @@
 * [ The Map of Mathematics ](https://youtu.be/OmJ-4B-mS-Y)
 * [ The Mother of All Demos, presented by Douglas Engelbart (1968) ](https://youtu.be/yJDv-zdhzMY)
 * [ The Real Reason Robots Shouldn’t Look Like Humans ](https://youtu.be/eLVAMG_3fLg)
+* [ The Rules for Rulers ](https://youtu.be/rStL7niR7gs)
 * [ The Simple Solution to Traffic ](https://youtu.be/iHzzSao6ypE)
 * [ This is Financial Advice ](https://youtu.be/5pYeoZaoWrA)
 * [ This Video Has 71,695,937 Views ](https://youtu.be/BxV14h0kFs0)
