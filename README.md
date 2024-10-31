@@ -5,6 +5,7 @@
 * [ 12 Principles of Animation (Official Full Series) ](https://youtu.be/uDqjIdI4bF4)
 * [ A Brief History of Graphics ](https://youtu.be/QyjyWUrHsFc)
 * [ Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
+* [ Can We Kill Cancer By Copying It? ](https://youtu.be/-kO8Ou8hffU)
 * [ Can We Make This Button Fun To Press? ](https://youtu.be/7L1B5YaxxoA)
 * [ Coding Adventure: Chess ](https://youtu.be/U4ogK0MIzqk)
 * [ Evolution of Dance ](https://youtu.be/dMH0bHeiRNg)
