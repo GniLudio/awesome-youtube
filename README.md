@@ -12,7 +12,7 @@
 * [ Exposing The Flaw In Our Phone System ](https://youtu.be/wVyu7NB7W6Y)
 * [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
 * [ How do bulletproof vests work? - Max G. Levy ](https://youtu.be/HsaSaYcnTKg)
-* [ How do Graphics Cards Work? Exploring GPU Architecture ](https://youtu.be/h9Z4oGN89MU)
+* [ How do Video Game Graphics Work? ](https://youtu.be/C8YtdC8mxTU)
 * [ How Filmmakers Make Cameras Disappear | Mirrors in Movies ](https://youtu.be/VASwKZAUVSo)
 * [ I Gave My Goldfish $50,000 to Trade Stocks ](https://youtu.be/USKD3vPD6ZA)
 * [ I Made a Graph of Wikipedia... This Is What I Found ](https://youtu.be/JheGL6uSF-4)
