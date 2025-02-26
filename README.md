@@ -19,6 +19,7 @@
 * [ I Made a Graph of Wikipedia... This Is What I Found ](https://youtu.be/JheGL6uSF-4)
 * [ In Search Of A Flat Earth ](https://youtu.be/JTfhYyTuT44)
 * [ Is it Better to Walk or Run in the Rain? ](https://youtu.be/3MqYE2UuN24)
+* [ I Spent 1 YEAR Remaking Super Mario World In 3D! ](https://youtu.be/A3WAoaWp0vs)
 * [ Jackie Chan - How to Do Action Comedy ](https://youtu.be/Z1PCtIaM_GQ)
 * [ Laughing Matters | Comedy Documentary | Earful #Comedy ](https://youtu.be/lqKqVrBP-so)
 * [ Life in a Day 2020 | Official Documentary ](https://youtu.be/vcsSc2iksC0)
