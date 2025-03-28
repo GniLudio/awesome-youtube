@@ -14,7 +14,7 @@
 * [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
 * [ How do bulletproof vests work? - Max G. Levy ](https://youtu.be/HsaSaYcnTKg)
 * [ How do Video Game Graphics Work? ](https://youtu.be/C8YtdC8mxTU)
-* [ How Filmmakers Make Cameras Disappear | Mirrors in Movies ](https://youtu.be/VASwKZAUVSo)
+* [ How Filmmakers Make Cameras Disappear \| Mirrors in Movies ](https://youtu.be/VASwKZAUVSo)
 * [ I Gave My Goldfish $50,000 to Trade Stocks ](https://youtu.be/USKD3vPD6ZA)
 * [ I Made a Graph of Wikipedia... This Is What I Found ](https://youtu.be/JheGL6uSF-4)
 * [ In Search Of A Flat Earth ](https://youtu.be/JTfhYyTuT44)
