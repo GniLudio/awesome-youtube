@@ -25,6 +25,7 @@
 * [ Life in a Day 2020 \| Official Documentary ](https://youtu.be/vcsSc2iksC0)
 * [ Mr. Bean Is A Master Of Physical Comedy ](https://youtu.be/uBUnmdd5-iA)
 * [ Mythbusters Demo GPU versus CPU ](https://youtu.be/-P28LKWTzrI)
+* [ Random CS:GO Bullshittery (part 1) ](https://youtu.be/IQ2ofp7bjxw)
 * [ Real Life Trick Shots \| Dude Perfect ](https://youtu.be/A2FsgKoGD04)
 * [ The Backwards Brain Bicycle - Smarter Every Day 133 ](https://youtu.be/MFzDaBzBlL0)
 * [ The Beauty of Bézier Curves ](https://youtu.be/aVwxzDHniEw)
