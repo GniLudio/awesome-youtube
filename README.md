@@ -23,7 +23,7 @@
 1. [ Laughing Matters \| Comedy Documentary \| Earful #Comedy ](https://youtu.be/lqKqVrBP-so)
 1. [ Life in a Day 2020 \| Official Documentary ](https://youtu.be/vcsSc2iksC0)
 1. [ Mr. Bean Is A Master Of Physical Comedy ](https://youtu.be/uBUnmdd5-iA)
-1. [ Mythbusters Demo GPU versus CPU ](https://youtu.be/-P28LKWTzrI)
+1. ~~[ Mythbusters Demo GPU versus CPU ](https://youtu.be/-P28LKWTzrI)~~
 1. [ Random CS:GO Bullshittery (part 1) ](https://youtu.be/IQ2ofp7bjxw)
 1. [ Real Life Trick Shots \| Dude Perfect ](https://youtu.be/A2FsgKoGD04)
 1. [ The Backwards Brain Bicycle - Smarter Every Day 133 ](https://youtu.be/MFzDaBzBlL0)
