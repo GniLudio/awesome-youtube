@@ -45,6 +45,3 @@
 1. [ Why Don't Snakes Poison Themselves? ](https://youtu.be/EzoqvBZe_gI)
 1. [ Why Electronic Voting Is Still A Bad Idea ](https://youtu.be/LkH2r-sNjQs)
 1. [ Why US elections only give you two choices ](https://youtu.be/bqWwV3xk9Qk)
-
-## Remark
-These videos are due to content, quality, topic and various other reasons the pinnacle of YouTube.
