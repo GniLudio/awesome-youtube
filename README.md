@@ -5,7 +5,6 @@
 1. [ 12 Principles of Animation (Official Full Series) ](https://youtu.be/uDqjIdI4bF4)
 1. [ A Brief History of Graphics ](https://youtu.be/QyjyWUrHsFc)
 1. [ Backyard Squirrel Maze 1.0- Ninja Warrior Course ](https://youtu.be/hFZFjoX2cGg)
-1. [ Can We Kill Cancer By Copying It? ](https://youtu.be/-kO8Ou8hffU)
 1. [ Can We Make This Button Fun To Press? ](https://youtu.be/7L1B5YaxxoA)
 1. [ Coding Adventure: Chess ](https://youtu.be/U4ogK0MIzqk)
 1. [ Evolution of Dance ](https://youtu.be/dMH0bHeiRNg)
@@ -44,4 +43,5 @@
 1. [ Why Democracy Is Mathematically Impossible ](https://youtu.be/qf7ws2DF-zk)
 1. [ Why Don't Snakes Poison Themselves? ](https://youtu.be/EzoqvBZe_gI)
 1. [ Why Electronic Voting Is Still A Bad Idea ](https://youtu.be/LkH2r-sNjQs)
+1. [  Why Haven't We Cured Cancer?  ](https://youtu.be/-kO8Ou8hffU)
 1. [ Why US elections only give you two choices ](https://youtu.be/bqWwV3xk9Qk)
