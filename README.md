@@ -19,6 +19,7 @@
 1. [ In Search Of A Flat Earth ](https://youtu.be/JTfhYyTuT44)
 1. [ Is it Better to Walk or Run in the Rain? ](https://youtu.be/3MqYE2UuN24)
 1. [ I Spent 1 YEAR Remaking Super Mario World In 3D! ](https://youtu.be/A3WAoaWp0vs)
+1. [ I Tried To Make Something In America (The Smarter Scrubber Experiment) - Smarter Every Day 308 ](https://youtu.be/3ZTGwcHQfLY)
 1. [ Jackie Chan - How to Do Action Comedy ](https://youtu.be/Z1PCtIaM_GQ)
 1. [ Laughing Matters \| Comedy Documentary \| Earful #Comedy ](https://youtu.be/lqKqVrBP-so)
 1. [ Life in a Day 2020 \| Official Documentary ](https://youtu.be/vcsSc2iksC0)
