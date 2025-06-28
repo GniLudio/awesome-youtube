@@ -8,6 +8,7 @@
 1. [ Can We Make This Button Fun To Press? ](https://youtu.be/7L1B5YaxxoA)
 1. [ Coding Adventure: Chess ](https://youtu.be/U4ogK0MIzqk)
 1. [ Evolution of Dance ](https://youtu.be/dMH0bHeiRNg)
+1. [ Exact Instructions Challenge - THIS is why my kids hate me. \| Josh Darnit ](https://youtu.be/cDA3_5982h8)
 1. [ Exposing The Flaw In Our Phone System ](https://youtu.be/wVyu7NB7W6Y)
 1. [ Google — Year in Search 2024 ](https://youtu.be/61JHONRXhjs)
 1. [ history of the entire world, i guess ](https://youtu.be/xuCn8ux2gbs)
